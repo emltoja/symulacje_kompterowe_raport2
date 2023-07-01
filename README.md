@@ -1,0 +1,1 @@
+# symulacje_kompterowe_raport2
